@@ -1,4 +1,4 @@
-### logo redign 
+### Logo Redesign
 
 This logo is a redesigned version created with the intention of making the brand more unique, refined, and visually connected. While redesigning, I focused on improving the overall structure, balance, and brand recall, ensuring the logo feels cohesive rather than just decorative.
 The main concept behind the redesign was to integrate the symbol and the brand name into a single visual system. Instead of keeping the icon separate, I merged it with the wordmark so the logo feels unified and instantly recognizable. The organic floral element represents natural ingredients and purity, while the subtle arc and star details add a sense of care, glow, and premium quality, aligning with the skincare industry.
